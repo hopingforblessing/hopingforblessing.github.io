@@ -1,4 +1,0 @@
-hopingforblessing.github.io
-===========================
-
-web
